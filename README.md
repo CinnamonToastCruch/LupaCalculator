@@ -5,6 +5,6 @@ all I got for it didn't take much time to make and it won't take much time to up
 as I can with this project.
 Thanks for listing.
 
-Yours Trulym, CinnamonToastCruch/dem
+Yours Truly, CinnamonToastCruch/dem
 
 (And CinnamonToastCrunch is spelt wrong because CinnamonToastCrunch was not available.)
